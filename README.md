@@ -1,16 +1,17 @@
-## Hi there 👋
 
-<!--
-**sevnredsuns/sevnredsuns** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![image](https://github.com/user-attachments/assets/4e679f78-4d15-4075-8b9e-51e46a83d6c3)
 
-Here are some ideas to get you started:
+all my socials + pages r linked here, go look for more info
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+before you interact: PROSHIPPERS KYS, im 16, sorta a freak (jokingly) lmk if i make you uncomfortable, art req are always open, 20+ dni, hazmid hotel dni
+
+ponytown stuff: c+h is always okay idc. im usually offtab or doing something whisp if u need me, i wont be bothered! iwc usually doesnt apply to close friends, i might bully you as a joke hide and move on if you dont like me 
+
+i love my oomfs --->
+@cobbla489
+@TheMisfortunate
+@mar1wvnna
+@Piratescug 
+@creationofhatredd
+@CedarIsSillyForReal
+@scugs

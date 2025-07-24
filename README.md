@@ -26,6 +26,8 @@ i love my oomfs --->
 
 ![image](https://github.com/user-attachments/assets/3f591465-4d37-4bc5-b887-f8e74fbfff33)![image](https://github.com/user-attachments/assets/9f7c7856-34d3-466c-a912-62db0d60445f)![image](https://github.com/user-attachments/assets/ffaa3540-c26c-4f75-822a-f5d444a2f240)
 
+<img width="326" height="194" alt="image" src="https://github.com/user-attachments/assets/76cd8172-5d13-4b64-926a-573c27663f31" />![image](https://github.com/user-attachments/assets/60e3836d-e8d7-4306-81a0-ebe06285f7df)<img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/35451524-a406-4c47-81f0-92ebbbc267bc" />
+
 
 
 

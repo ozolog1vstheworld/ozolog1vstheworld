@@ -5,18 +5,11 @@
 
 all my socials + pages r linked here, go look for more info
 
-before you interact: PROSHIPPERS KYS, im 16, sorta a freak (jokingly) lmk if i make you uncomfortable, art req are always open, 20+ dni, hazmid hotel dni
+before you interact: im 16, sorta a freak (jokingly) lmk if i make you uncomfortable, i prefer not to talk about topics that upset me-ill let you know if they do, im always changing fixations and usually a name with them
 
 ponytown stuff: c+h is always okay idc. im usually offtab or doing something whisp if u need me, i wont be bothered! iwc usually doesnt apply to close friends, i might bully you as a joke hide and move on if you dont like me 
 
-i love my oomfs --->
-@cobbla489
-@TheMisfortunate
-@mar1wvnna
-@Piratescug 
-@creationofhatredd
-@CedarIsSillyForReal
-@scugs
+DNI: proshippers. absolutely no exceptions, seek help please. hazmid hotel fans, 20+, 12-, zoos, pedos, you get the idea
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d7b32d7e-1f49-46a4-a516-628fea5b51bc" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/87c0f68c-83a4-4987-a57e-de3edc5691cc" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/32868252-109d-46cd-afa3-785ebd229297" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f7d7e726-2f1b-416e-9ba9-478297105b34" />
 

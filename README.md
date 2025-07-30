@@ -1,5 +1,7 @@
 
-![image](https://github.com/user-attachments/assets/4e679f78-4d15-4075-8b9e-51e46a83d6c3)
+![image](https://github.com/user-attachments/assets/7534af9a-b6ed-4a95-a8f1-73434a69046f)
+
+
 
 all my socials + pages r linked here, go look for more info
 

@@ -1,7 +1,6 @@
 
 ![image](https://github.com/user-attachments/assets/ed97690d-f6f7-427f-8d7f-90cebadcbc82)
 
-banner art by akikiataeh029 on twt !
 
 
 all my socials + pages r linked here, go look for more info

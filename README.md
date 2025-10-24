@@ -13,6 +13,7 @@ ponytown stuff: c+h is always okay idc. im usually offtab or doing something whi
 
 DNI: proshippers. absolutely no exceptions, seek help please. hazmid hotel fans, 20+, 12-, zoos, pedos, you get the idea
 
+look at other repository ^^
 
 ![image](https://github.com/user-attachments/assets/3f591465-4d37-4bc5-b887-f8e74fbfff33)![image](https://github.com/user-attachments/assets/9f7c7856-34d3-466c-a912-62db0d60445f)![image](https://github.com/user-attachments/assets/ffaa3540-c26c-4f75-822a-f5d444a2f240)
 

@@ -6,7 +6,7 @@
 
 all my socials + pages r linked here, go look for more info
 
-USERNAME USED TO BE @SEVNREDSUNS. IT IS STILL ME LOL
+USERNAME USED TO BE @SEVNREDSUNS. went by suns online but im transitioning out of that 
 
 before you interact: im 16, sorta a freak (jokingly) lmk if i make you uncomfortable, i prefer not to talk about topics that upset me-ill let you know if they do, im always changing fixations and sometimes a username with them 
 

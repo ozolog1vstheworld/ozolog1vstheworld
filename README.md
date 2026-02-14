@@ -8,7 +8,7 @@ all my socials + pages r linked here, go look for more info
 
 used to be @sevnredsuns
 
-16
+17
 
 ponytown stuff: c+h is always okay idc. im usually offtab or doing something whisp if u need me, i wont be bothered! iwc usually doesnt apply to close friends, i might bully you as a joke hide and move on if you dont like me 
 

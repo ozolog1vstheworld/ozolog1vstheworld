@@ -5,7 +5,7 @@
 ![image](https://github.com/user-attachments/assets/b4f8ffa7-36d3-42cd-89e0-ff43cd882b02)
 
 
-FOLLOW MY ARTFIGHT!! : https://artfight.net/~carcrashbf
+
 
 all my socials + pages r linked here, go look for more info
 
